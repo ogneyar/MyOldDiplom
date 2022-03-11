@@ -1,1 +1,1 @@
-# My old version graduate work (диплом)
+# My original graduate work (диплом)
